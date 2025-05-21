@@ -8,4 +8,5 @@ Silakan gunakan format berikut:<br>
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * fadhillah Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+* Hong Eun-chae, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
 
